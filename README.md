@@ -8,7 +8,7 @@ Meu nome é Fernanda Alves
 
   ### Você pode entrar em contato comigo 📫
 
-  fealmaximo@gmail.com
+  fealvesmaximo@gmail.com
   @feer_alves_
 
   ![](https://media.tenor.com/Q5LarySkIXAAAAAM/snoopy-hello.gif)
