@@ -11,4 +11,4 @@ Meu nome é Fernanda Alves
   fealvesmaximo@gmail.com
   @feer_alves_
 
-  ![](https://media.tenor.com/Q5LarySkIXAAAAAM/snoopy-hello.gif)
+  ![](https://tenor.com/pt-BR/view/peanuts-charlie-brown-snoopy-gif-27243894)
